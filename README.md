@@ -13,9 +13,7 @@ I enjoy learning new technologies and exploring how data can create impactful so
 - LinkedIn: www.linkedin.com/in/louis-angelica-1a7414384
 - Instagram: https://www.instagram.com/louisngelicaa?igsh=MWt0azZybmdqdTByNA==
 
-## ✨ Fun Facts
-- 🍽️ It takes me forever to eat and shower.  
-- 🎂 Most people can’t guess my real age.  
+## ✨ Fun Facts 
 - ⚡ I can figure things out pretty quickly, but I forget them in a second.  
 - 🧠 A fast learner, but not the best at memorizing.  
 
